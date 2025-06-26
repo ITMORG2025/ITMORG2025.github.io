@@ -1,5 +1,5 @@
-# **Indivisible Table Mountain 2025, Golden**
+# **Indivisible Table Mountain, Golden**
 
-### For more information contact;
+### For more information;
 
-### [Contact Mail](mailto:indivisibletablemountain@gmail.com)
+### [Contact Email](mailto:indivisibletablemountain@gmail.com)
