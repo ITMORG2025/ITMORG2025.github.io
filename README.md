@@ -2,4 +2,4 @@
 
 ### For more information contact;
 
-### mailto:indivisibletablemountain@gmail.com
+### [Contact Mail](mailto:indivisibletablemountain@gmail.com)
