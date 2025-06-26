@@ -1,4 +1,4 @@
-# **Indivisible Table Mountain, Golden**
+# **Indivisible Table Mountain**
 
 ### For more information;
 
